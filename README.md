@@ -1,2 +1,2 @@
 # Cromatoes
-NFT Project on Crpyto.com
+NFT Project on Crypto.com
